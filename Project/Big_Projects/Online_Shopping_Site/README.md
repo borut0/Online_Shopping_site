@@ -24,6 +24,9 @@
 
 ![Screenshot (258)](https://user-images.githubusercontent.com/89539128/137265094-e9bfca30-a3fc-429a-9bc6-7bed524dda39.png)
 
+![Screenshot (255)](https://user-images.githubusercontent.com/89539128/137265700-004c2dfd-c07d-42a9-9cee-e5888143e446.png)
+
+![Screenshot (256)](https://user-images.githubusercontent.com/89539128/137265706-4b579b50-2774-440e-8f7b-834039e844ef.png)
 
 
 Note : here i take all the images from flipkart for only education purpose
